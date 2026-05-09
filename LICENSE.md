@@ -1,4 +1,4 @@
-
+Descript for macOS updated Effect: shortcut-customization & voice-enhancement offers the most advanced Descript for macOS effect, with shortcut-customization and
 
 
 
